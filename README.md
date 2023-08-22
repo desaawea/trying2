@@ -72,7 +72,8 @@ https://lookerstudio.google.com/reporting/723de5b9-baf7-438d-8143-6c68444f260d
 https://lookerstudio.google.com/reporting/8cc453a3-0855-42e9-856b-b93f2486026f
 https://lookerstudio.google.com/s/i53GNshsaQE
 https://lookerstudio.google.com/reporting/8cc453a3-0855-42e9-856b-b93f2486026f/page/zNWaD
-https://replit.com/@JanOpalinski)https://nutakugold.club/free-coins-method/
+https://replit.com/@JanOpalinski
+>https://nutakugold.club/free-coins-method/
 
 
 
